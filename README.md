@@ -1,16 +1,13 @@
-## Hi there 👋
+***
 
-<!--
-**sealpies/sealpies** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"> <img src="https://64.media.tumblr.com/f14b987183c2446a0f955279774784fa/6d050a7ce7e4a62d-77/s1280x1920/75fe8177a9bafd8321252f9a422bd9c2f3f62800.pnj"/> </p>
 
-Here are some ideas to get you started:
+<p align="center"> <img src="https://files.catbox.moe/e2ecf1.gif"/> </p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+⁺　♱　　　finn / kami　, ,　　any　₊　trms  <br>  O3.O1　.　〷　　sealpies on disc ₊ †
+</p>
+
+<div align="center">
+
+***
